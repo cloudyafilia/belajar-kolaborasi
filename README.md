@@ -6,3 +6,4 @@ Semangatttt!!<3 <br>
 Chase your dream!<br>
 YAAAAAAAAAAAAAAAAAAAAA <br>
 sukses slalu
+and never give up
